@@ -1,0 +1,6 @@
+So, burger is basically a foodstuff which most of the people on earth love.We'll learn how to make a veg burger.
+A veggie burger is a burger patty that does not contain meat. These burgers may be made from ingredients like beans, especially soybeans and tofu, nuts, grains, seeds or fungi such as mushrooms or mycoprotein.
+
+The patties that are the essence of a veggie burger have existed in various Eurasian cuisines for millennia, including in the form of disc-shaped grilled or fried meatballs or as koftas, a commonplace item in Indian cuisine. These may contain meats or be made of entirely vegetarian ingredients such as legumes or other plant-derived proteins. 
+
+The veggie burger, by name, may have been created in London in 1982 by Gregory Sams, who called it the 'VegeBurger'. Gregory and his brother Craig had run a natural food restaurant in Paddington since the 1960s; a Carrefour hypermarket in Southampton sold 2000 packets in three weeks after its launch.An earlier reference can be heard in the 7 June 1948 episode of Let George Do It called "The Mister Mirch Case" where a character refers to "vegeburgers," as a burger made of nuts and legumes.
